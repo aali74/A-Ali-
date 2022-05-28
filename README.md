@@ -1,3 +1,3 @@
-# A-Ali-
+# A-Ali
 
-Hey! I am a 3rd Year Computer Engineering student with a Minor in Electricla & Electronic Engineering
+Hey! I am a 3rd Year Computer Engineering student with a Minor in Electrical & Electronics Engineering
